@@ -1,1 +1,0 @@
-# smartpills.com
